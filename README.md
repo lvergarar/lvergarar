@@ -10,7 +10,7 @@
 
 ## 🧐 About
 
-- 📫 How to reach me: lvergara@gmail.com
+- 📫 How to reach me: lvergararobledo@gmail.com
 - 🌱 Languages and Tools: 
 
     <div>
